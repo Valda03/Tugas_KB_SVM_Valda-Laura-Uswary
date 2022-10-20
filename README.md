@@ -1,0 +1,1 @@
+# Tugas_KB_SVM_Valda-Laura-Uswary
